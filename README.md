@@ -1,4 +1,3 @@
-# Akhdan-Fadhli-Zaim
 # Halo semua! 
 
 Perkenalkan nama saya **Akhdan Fadhli Zaim**.\
